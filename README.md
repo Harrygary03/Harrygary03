@@ -2,7 +2,7 @@
 - 👀 I’m interested in spamming
 - 🌱 I’m currently learning how to spam
 - 💞️ I’m looking to collaborate on my work
-- 📫 How to reach me 0147molody@gmail.com
+- 📫 How to reach me 0147melody@gmail.com
 
 <!---
 Harrygary03/Harrygary03 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
